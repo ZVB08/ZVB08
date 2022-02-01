@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ZVB08
+- 👀 I’m interested in Anime and gaming
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on pc
+- 📫 How to reach me discord ZVB08£0392
